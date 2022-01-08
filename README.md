@@ -1,7 +1,9 @@
 ## Termux Basic Packages 
 
-Termux  AToZ Package Installed In One Click.
-      
+ - Termux  AToZ Package Installed In One Click.
+  
+  
+  
 ## Tool Installation This Packages
  
  -  python
