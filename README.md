@@ -69,7 +69,7 @@ termux-setup-storage.
 
 ## SUPPORT OUR CHANNEL....🛸🛸
 
-
+![1641409038036](https://user-images.githubusercontent.com/96905918/148653912-220c2f43-5b42-4f2b-90ac-f8f29ea4d08c.png)
 
 https://youtube.com/channel/UClS5s3yUHTwo8GuH1-hi42w
 
