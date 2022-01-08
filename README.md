@@ -65,10 +65,14 @@ termux-setup-storage.
    ```
 
 
-### Subscribe ALONE HACKER Channel
+## SUPPORT OUR CHANNEL....🛸🛸
+
+
 
 https://youtube.com/channel/UClS5s3yUHTwo8GuH1-hi42w
 
-Please Support ALONE HACKER YouTobe Channel
+## LIKE....👍
 
-### 🙏🙏 THANK YOU 🙏🙏
+## COMMENT....💬 
+
+## SUBSCRIBE....💝
